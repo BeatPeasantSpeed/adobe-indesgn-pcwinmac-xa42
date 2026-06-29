@@ -1,4 +1,4 @@
-# 
+# Avançado Adobe InDesign predefinições para Mac OS | Inteligente Adobe InDesign predefinições para PC Windows. Com colaboração em tempo real e ativos vinculados — otimizado para máximo desempenho em cada plataforma.
 
 
 
